@@ -1,1 +1,1 @@
-Pleaste teacher give me a 100
+Please teacher give me a 100
